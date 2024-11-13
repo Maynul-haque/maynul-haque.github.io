@@ -1,1 +1,1 @@
-# maynul-haqur.github.io
+# maynul-haque.github.io
